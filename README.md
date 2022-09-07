@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mugundhn
+- 👋 Hi, I’m @Mugundhan
 - 👀 I’m interested in Business Development
 - 🌱 I’m currently learning in Post Graduate Program in
 Strategic Digital Marketing (PGP-SDM)
